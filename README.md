@@ -8,3 +8,4 @@
 - 🌼 Favorite color: Mid, light, pastel, and baby blue!
 - 🙏 My religion: Christian!
 - 🎮 My Favorite game: Pt!
+https://images.app.goo.gl/gdVyvtcbNa6dkjah6
